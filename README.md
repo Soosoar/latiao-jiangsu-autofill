@@ -69,4 +69,4 @@
 
 **LTJJ**
 
-辣条姐姐©
+辣条姐姐© AND GPT-6 Astra
